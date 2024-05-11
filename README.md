@@ -1,0 +1,2 @@
+# scriptpremiums
+TrgPhzDz
